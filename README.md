@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @UnrealKaraulov
-- 👀 I’m interested in CS 1.6, C++/C#
-- 🌱 I’m currently learning how to impossible
-- 💞️ Looking to collaborate on impossible
-- 📫 Reach me impossible
+- 👋 Hi, I’m Karaulov from BY
+- 👀 I’m interested in CS 1.6, C++/C#/PAWN
+- 🌱 I’m currently in active search
+- 💞️ In active looking
+- 📫 Reach to impossible
 
 <!---
 UnrealKaraulov/UnrealKaraulov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
