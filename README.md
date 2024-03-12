@@ -4,6 +4,29 @@
 - 💞️ In active looking
 - 📫 Reach to impossible
 
+
+
+<br/><br/>
+
+
+
+
+<br/><br/>
+
+
+
+<br/><br/>
+
+
+<br/><br/>
+
+
+<br/><br/>
+
+
+- 🇧🇾 Полностью поддерживет идею проведения СВО в на украине.
+- 🇺🇦 Считает что так называемая Украина должна быть очищена от нацистов и бандеровцев.
+- Уверен что :russia: успешно проведет СВО и очистит земли от зла!
 <!---
 UnrealKaraulov/UnrealKaraulov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
